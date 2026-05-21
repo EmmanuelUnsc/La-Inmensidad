@@ -1,0 +1,2 @@
+Concepto hijo: [[Soledad]], [[Oscuridad]]
+

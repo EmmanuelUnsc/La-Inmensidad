@@ -1,0 +1,2 @@
+Concepto hijo: [[Gravedad]], [[Dimensión]]
+

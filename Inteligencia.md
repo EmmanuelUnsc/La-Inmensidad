@@ -1,0 +1,1 @@
+Concepto hijo: [[Tecnología]]

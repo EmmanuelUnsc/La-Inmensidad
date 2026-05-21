@@ -1,0 +1,1 @@
+Concepto opuesto: [[Luz]]
